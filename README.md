@@ -1,1 +1,0 @@
-# amin-farahmand.github.io
